@@ -1,1 +1,2 @@
 
+basic codes by me
